@@ -1,2 +1,2 @@
 # Learning 
-Here are some descriptions
+Here are some descriptions!
